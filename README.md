@@ -1,2 +1,2 @@
 # kenneth-wanjru
-fxfgcghvkkbhjvgjvkhgvkhgchjk
+Welcome to my GitHub page
